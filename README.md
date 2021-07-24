@@ -2,6 +2,7 @@
 
 - Meu nome é Arthur e tenho 20 anos 👨‍💻
 - Sistemas de Informação na Mackenzie até 12/2022[](https://emojiterra.com/pt/8-horas/) 🕗
+- Nirvana 🎸
 
 ### 🌍  "Sempre tem um jeito"  🧠
 
