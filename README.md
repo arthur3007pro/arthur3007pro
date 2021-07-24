@@ -1,7 +1,7 @@
 # Opa! 👋 
 
 - Meu nome é Arthur e tenho 20 anos 👨‍💻
-- Sistemas de Informação na Mackenzie até 2022[](https://emojiterra.com/pt/8-horas/) 🕗
+- Sistemas de Informação na Mackenzie até 12/2022[](https://emojiterra.com/pt/8-horas/) 🕗
 
 ### 🌍  "Sempre tem um jeito"  🧠
 
