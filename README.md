@@ -8,7 +8,7 @@
 
 -   📍  De São Paulo, SP
 -   💬  Em busca de me tornar um desenvolvedor **back-end**
--   [](https://emojiterra.com/pt/cafe/)☕  Minha linguagem mais usada aqui é o **Java** SE 11.0.12 LTS.
+-   [](https://emojiterra.com/pt/cafe/)☕  Minha linguagem mais usada aqui é o **Java** SE 11.0.12 LTS
 
 Fale comigo 👇🏼
 
